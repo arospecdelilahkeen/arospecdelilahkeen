@@ -1,5 +1,4 @@
-<p align="center">
-<br>hi, i'm emil. ^_^
+<p align="center">hi, i'm emil. ^_^
 <br>19yo brazilian. agender; refer to me however you see fit.
 <br>sharing delilah keen yume since early 2025.
 <br>
