@@ -4,6 +4,6 @@
 <br>no gender, all pronouns; refer to me however you see fit.
 <br>sharing delilah keen yume since jan 2025.
   <br>
-  <br>c+h always. i don't bite, i promise.
+  <br>c+h always, no conversation topic required.
   <br>🌼
 </p>
