@@ -5,7 +5,7 @@
 
   <p align="center">hello. i'm emil, but you may also call me tragedy, widget or alibi.
   <br>19yo agender aroacespec brazilian. any/all pronouns, he/they slightly pref.
-  <br>(sharing) delilah keen yumeshipper. she's my lovely qpr joyfriend!
+  <br>(sharing) delilah keen yume. she's my lovely qpr joyfriend!
   <br>
   <br>UTC-3 time. commonly seen in the safe server's dandy's world area above spawn.
   <br>c+h always unless stated otherwise. i don't bite, i think. ^_^</p>
