@@ -8,6 +8,6 @@
   <br>(sharing) delilah keen yumeshipper. she's my lovely qpr joyfriend.
   <br>
   <br>UTC-3 time. i'm online whenever i feel like it.
-  <br>(safe server) commonly seen in the dandy's world area above spawn.
+  <br>commonly seen in the safe server's dandy's world area, above spawn.
   <br>c+h always unless stated otherwise. i don't bite, or so i think. ^_^</p>
 
