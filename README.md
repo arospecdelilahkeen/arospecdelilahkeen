@@ -4,7 +4,7 @@ previously known as swordsmaiden.
 <br>
 <br>hello. i'm emil, but you may also call me tragedy, widget or alibi.
 <br>19yo agender aroacespec brazilian. any/all, he/they slightly pref.
-<br>(sharing) delilah keen yume. she's my lovely qpr joyfriend!
+<br>(sharing) delilah keen yume.
 <br>
 <br>UTC-3 time. i'm online at random.
 <br>c+h always unless stated otherwise. i don't bite, i think. ^_^
