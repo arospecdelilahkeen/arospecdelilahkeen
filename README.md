@@ -1,10 +1,10 @@
-previously known as swordsmaiden.
+<p align="center">
+also known as @swordsmaiden.
+<br>🛰️ aster / apogee / emil / saturn (+ more)
+<br> agender aroace. any/all prns, he/they pref.
+<br>19yo brazilian. i am a (adjective pending).
 <br>
-<br>[![credit](https://64.media.tumblr.com/1fd0da603aa59fc6d90aee328dd036b1/9b0784cf9336243c-5c/s250x400/c06bdb3004d6aca13cfc7c57caf201243c65692b.gifv)](https://www.tumblr.com/doggone7/789524259240280064/i-wasnt-going-to-upload-this-at-first-but-figured)
-<br>
-<br>hello. i'm emil, but you may also call me tragedy, widget or alibi.
-<br>19yo agender aroacespec brazilian. any/all, he/they slightly pref.
-<br>(sharing) delilah keen yume.
-<br>
-<br>UTC-3 time. i'm online at random.
-<br>c+h always unless stated otherwise. i don't bite, i think. ^_^
+<br> i love the book club!
+<img width="180" height="24" alt="tumblr_92223c2792f3548aa29a27b81e2169cb_05444f17_250" src="https://github.com/user-attachments/assets/111647fa-f75a-4137-bf52-3cfad9273604" /><img width="180" height="24" alt="tumblr_a0908528e945041389b2735c5440499e_7ef8e34b_250" src="https://github.com/user-attachments/assets/2d0d4092-607f-4b1b-b506-fedc7f143fff" /><img width="180" height="24" alt="tumblr_9712fbcfb7a055f2d906d63269c0d74a_42903a9e_250" src="https://github.com/user-attachments/assets/774c6f9c-661e-4f7f-ae03-6b25bc4eb32c" />
+<br>commonly seen in the dw area above spawn.
+<br>c+h always unless stated otherwise.
